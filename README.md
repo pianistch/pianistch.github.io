@@ -1,2 +1,0 @@
-# pianistch.github.io
-# blog
